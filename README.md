@@ -1,5 +1,5 @@
 
-- 📖  Atualmente cursando a graduação em Sistemas para Internet
+- 📖  Atualmente cursando Sistemas para Internet.
 - 🎓  Técnico em Informática para internet.
 
  <div>
